@@ -11,3 +11,15 @@
 # MUSA ETO TI?
 # BLA SHO
 <img width="506" height="387" alt="image" src="https://github.com/user-attachments/assets/4049f987-7075-4025-9f8f-f99596773e49" />
+
+
+
+
+
+
+
+
+
+# MUSA ETO TI?
+# Net eto selo molosnoje
+<img width="498" height="373" alt="image" src="https://github.com/user-attachments/assets/c50d8248-9645-4ec6-92ad-93140375836f" />
