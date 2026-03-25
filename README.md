@@ -1,2 +1,3 @@
 ### MUSA ETO TI?
-### OH BLAT
+### OH BLAT......
+<img width="502" height="380" alt="image" src="https://github.com/user-attachments/assets/c6444bca-01d4-4156-8dcd-398571e8ee16" />
